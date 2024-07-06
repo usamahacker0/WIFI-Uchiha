@@ -1,3 +1,3 @@
 # WIFI-Uchiha
 
-Coming SOON!
+I Add more details soon
